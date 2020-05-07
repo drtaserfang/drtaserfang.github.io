@@ -1,3 +1,10 @@
+This is my first page of a future blog I am so excited. 
+
+**Wow I can't wait!** 
+well this is my fifty-7th try on making a page. Well the only reason I am doing this is:
+- First of all I am doing this so I can play age of empires.
+- also to show off to my friends a friend in particular who is racing me to be able to play age of empires.
+
 
 <!-- 
 
