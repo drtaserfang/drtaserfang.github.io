@@ -1,2 +1,4 @@
 I **not the kind of person that types,**
 "Dear blog this or dear blog that I _really_ just  want to:
+go and play age of empires but my dad has t oset that up on the onnly two computers that it will work on because we have mostly macs.
+only two windows!
