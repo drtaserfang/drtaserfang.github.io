@@ -9,6 +9,7 @@ series he is very skinny.
 
 _well anyway I need to figure out how to make the next page_
 
+[next blog page](./second.md)
 
 <!-- 
 
